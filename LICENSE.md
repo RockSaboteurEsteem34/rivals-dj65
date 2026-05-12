@@ -1,4 +1,4 @@
-#  
+#  rivals instant Script is the best rivals Script, featuring god mode and auto-farm. Safe and powerful for all your needs.
 
 
 
